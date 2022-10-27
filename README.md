@@ -1,2 +1,1 @@
-# Curriculo
-# projdanielgimenes.github.io
+https//projdanielgimenes.github.io/Curriculo
