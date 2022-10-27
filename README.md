@@ -1,1 +1,1 @@
-https//projdanielgimenes.github.io/Curriculo
+https:////projdanielgimenes.github.io/Curriculo
